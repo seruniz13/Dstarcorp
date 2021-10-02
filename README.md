@@ -1,0 +1,2 @@
+# Dstarcorp
+subs dickyz gaming
